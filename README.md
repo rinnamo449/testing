@@ -1,4 +1,4 @@
 # testing
-Hello World
-My first repository on GitHub!
-I like cat , dog and , rabbit
+5610110449
+นายรินลักษณ์ รักษาแก้ว
+
